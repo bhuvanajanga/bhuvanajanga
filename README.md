@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Bhuvana Janga
 - 👀 I’m interested in developing,designing the software.
 - 🌱 I’m currently learning new skills. 
-- 📫 How to reach me by email =bhuvanajanga8@gmail.com
+- 📫 You can reach me by bhuvanajanga8@gmail.com
 - 😄 Pronouns: she/her/by name
 - ⚡ Fun fact: ...
 
